@@ -1,1 +1,1 @@
-Lan 2 viet tren day
+Lan 2 viet
